@@ -2,6 +2,6 @@
 
 Bubby and Benji are the best kids... The rest are...losers. :)
 
-Derpy disagrees :(
+Derpy disagrees :( but i agree
 
 Amalins kinda cool...
